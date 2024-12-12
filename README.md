@@ -1,4 +1,4 @@
 # usmankhan
 This is my  second respository
 <br>
-Author name -<br> Usman khan sir
+Author name -<br> Usman khan bro
